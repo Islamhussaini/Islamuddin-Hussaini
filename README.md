@@ -1,2 +1,2 @@
 # Islamuddin-Hussaini
-here is the practice site of Islamuddin 
+here is the Islamuddin's practice site
